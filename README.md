@@ -1,5 +1,4 @@
 # Physical Features Of India
-write.as 0 views EditSharePosts
 In fact, our country has practically all major
 physical features of the earth, i.e., mountains,
 plains, deserts, plateaus and islands.
